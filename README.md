@@ -10,6 +10,6 @@ Plastics in trash is a big problem in our society. We aim to empower the childre
 
 We meet every-other Sunday in NE Portland to work on the Precious Plastics PDX project.
 
-Please contact us at <Hello@PreciouPlacticPDX.com> for details.
+Please contact us at <hello@preciousplasticpdx.com> for details.
 
-Visit <https://preciousplastic.com> to find out more about the global project as well as details about machines we are working on.
+Visit <https://preciousplastic.com> to find out more about the global project as well as details about the machines we are working on.
